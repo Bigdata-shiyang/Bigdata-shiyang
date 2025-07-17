@@ -1,4 +1,4 @@
-I am an ordinary student from Harbin University of Technology. 
+I am an ordinary student from Harbin University of Science and Technology. 
 I hope to improve my professional level through continuous study. 
 I hope I can learn from excellent people and get close to them.
 - 👋 Hi, I’m @Bigdata-shiyang
